@@ -1,3 +1,10 @@
+📺📱👉◄◄🔴 https://alltvsteam.com/UCL/
+
+📺📱👉◄◄🔴 https://alltvsteam.com/UCL/
+
+📺📱👉◄◄🔴 https://alltvsteam.com/UCL/
+
+
 L'Atalanta ospita il Club Brugge per la gara di ritorno dei play-off della Champions League 2024-2025: i bergamaschi devono rimontare i belgi dopo la sconfitta per 2-1 dell'andata per potersi qualificare agli ottavo di finale. Fischio d’inizio alle ore 21:00 al Gewiss Stadium di Bergamo con diretta TV e streaming su Sky e Sky GO.
 
 La partita d'andata è stata condizionata, in maniera oggettiva, dal calcio di rigore assegnato al Club Brugge nei minuti di recupero finali: Hien e Nilsson si contendono un pallone in area e per un lieve contatto l'arbitro Umut Meler ha assegnato la massima punizione che ha mandato su tutte le furie Gasperini e i giocatori della Dea. Una scelta a dir poco discutibile che ha scatenato un enorme dibattito nelle ore successive e di cui si sta parlando a poche ore dal fischio d'inizio della sfida di ritorno. Nilsson ha detto che “Era netto” mentre Gasp in conferenza ha affermato: “Non conosco più le regole”.
